@@ -5,6 +5,6 @@ List of things I have got myself involved in; some years ago and now!
 - Leadership roles
 - Competitions won and lost
 - Selfless Services
-- Habits to culttivate
+- Habits to cultivate
 - Education
 
